@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @charclissold
+- 👀 I’m interested in learning
+- 🌱 I’m currently learning year 10 
+- 💞️ I’m looking to collaborate on maths
+- 📫 How to reach me idk
